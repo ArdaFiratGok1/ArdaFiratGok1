@@ -1,1 +1,1 @@
-he is literally me
+gülleri çok severim özellikle mor olanları
